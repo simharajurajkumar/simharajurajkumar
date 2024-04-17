@@ -2,7 +2,7 @@
 - 👀 I’m interested in AI and Astronomy
 - 🌱 I’m currently learning B.Tech in Computer Science and Engineering(AI&ML)
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me Contact Number:+91 9392977592,Email ID:simharajurajkumar0404@gmail.com, LinkedIn:www.linkedin.com/in/simharajurajkumar
+- 📫 How to reach me Contact Number:+91 9392977592, Email ID:simharajurajkumar0404@gmail.com, LinkedIn:www.linkedin.com/in/simharajurajkumar
 
 
 - 😄 Pronouns: He/Him
